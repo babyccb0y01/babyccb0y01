@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @babyccb0y01
+- 👀 I’m interested in cc
+- 🌱 I’m currently learning cc
+- 💞️ I’m looking to collaborate on cc
+- 📫 How to reach me cc
+- 😄 Pronouns: cc
+- ⚡ Fun fact: cc
